@@ -1,2 +1,2 @@
 # learn
-*jvkdnvkvniunivu
+jvkdnvkvniunivu
